@@ -1,3 +1,3 @@
 > 🇩🇪 German
 
-> ☎️ Finance @ https://plutorix.com
+> 🏦 Finance @ https://plutorix.com
